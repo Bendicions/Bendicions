@@ -1,4 +1,4 @@
-![image alt](https://github.com/BendicionYT/BendicionYT/blob/main/image.png?raw=true)
+![image alt](https://github.com/Bendicions/Bendicions/blob/main/Untitled105_20260512190500.png?raw=true)
 
 <p align="center">𝗶 𝗻𝗲𝗲𝗱 𝗺𝗼𝗿𝗲, 𝗻𝗲𝗲𝗱 𝗺𝗼𝗿𝗲, 𝗡𝗘𝗘𝗗 𝗠𝗢𝗥𝗘! 𝗜𝗧𝗦 𝗔𝗟𝗟 𝗧𝗛𝗘 𝗦𝗔𝗠𝗘 !!!</p>
 
